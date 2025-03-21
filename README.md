@@ -6,4 +6,4 @@ youtube links:
 A - 
 B(bolt.diy) - https://youtu.be/OqxDtAJpeWQ
 C(cursor) - https://youtu.be/aNSV9py9udY
-D - 
+D(aider) - https://youtu.be/4ORU16Pt_Kk
